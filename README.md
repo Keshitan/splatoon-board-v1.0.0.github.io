@@ -1,0 +1,1 @@
+# splatoon-board-v1.0.0.github.io
